@@ -34,7 +34,7 @@
 
 - 🤝 Teamwork and Collaboration
 - 📢 Communication Skills
-- 🎯 Problem-Solving and perseverance
+- 🎯 Problem-Solving
 - 🚀 Adaptability 
 
 
