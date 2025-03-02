@@ -32,10 +32,11 @@
 
 ## 🏆 Soft Skills
 
-- 🤝 Teamwork & Collaboration
+- 🤝 Teamwork and Collaboration
 - 📢 Communication Skills
-- 🎯 Problem-Solving
-- 🚀 Adaptability
+- 🎯 Problem-Solving and perseverance
+- 🚀 Adaptability 
+
 
 ---
 
