@@ -2,7 +2,7 @@
 
 # 👋 Hi, I'm Di-Anne
 
-🌱 Beginner Software Developer | 🚀 Excited to Learn & Build
+🌱 Beginner Software Developer coming from the field of Marine Science | 🚀 Excited to Learn & Build
 
 ---
 
